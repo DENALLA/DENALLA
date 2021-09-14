@@ -2,7 +2,7 @@
 - 👀 I’m interested in Human Resource Developement
 - 🌱 I’m currently learning Psychology
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me @nandacalvin5@gmail.com
+- 📫 How to reach me @nandacalvin5@gmail.com or find me on instagram @calvinjonathanfernanda
 
 <!---
 DENALLA/DENALLA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
